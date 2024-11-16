@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @korsoalarusi17
+- 👋 Hi, I’m @Korsoalarusi17
 - 👀 I’m interested in ...[Seenaa Jireenyaa.docx](https://github.com/user-attachments/files/17787744/Seenaa.Jireenyaa.docx)
 
 - 🌱 I’m currently learning ...
